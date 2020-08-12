@@ -23,11 +23,11 @@ After a Strings by Mail order, I have a lot of strings, but I'm still not changi
 
 I have:
 
-Augustine Classic/Gold (tried)
-Augustine Classic/Red (trying)
-D'Addario Pro Arté EJ45 Normal Tension
-Strings by Mail Classical Guitar Strings Medium Tension Tie End
-Ernie Ball 2403 Ernesto Palla Clear & Silver Nylon Strings
+* Augustine Classic/Gold (tried)
+* Augustine Classic/Red (trying)
+* D'Addario Pro Arté EJ45 Normal Tension
+* Strings by Mail Classical Guitar Strings Medium Tension Tie End
+* Ernie Ball 2403 Ernesto Palla Clear & Silver Nylon Strings
 
 Aug. 11, 2020
 
