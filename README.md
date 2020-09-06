@@ -39,6 +39,8 @@ Sept. 6, 2020
 
 ## Augustine Classic/Gold and Classic/Red — Medium Tension
 
+![Image of Augustine Classic Gold and Classic Red string packages](/2020_0811_augustine_gold_and_red.jpg)
+
 The things anybody likes to see in a string — or at least those I like to see —  are that they "fit" the guitar, have good intonation, and feel and sound good.
 
 The Augustine Classic/Gold set checked all of these boxes. My 1962 Goya's aging tuners stopped sticking when I went from high-tension D'Addario to normal-tension Augustine strings.
