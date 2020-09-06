@@ -29,7 +29,13 @@ I have:
 * Strings by Mail Classical Guitar Strings Medium Tension Tie End
 * Ernie Ball 2403 Ernesto Palla Clear & Silver Nylon Strings
 
-Aug. 11, 2020
+I want to try:
+
+* Aquila Alabastro
+* Aquila Ambra
+* D'Addario Pro Arté EJ30 Normal Tension Rectified Nylon
+
+Sept. 6, 2020
 
 ## Augustine Classic/Gold and Classic/Red — Medium Tension
 
