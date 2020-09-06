@@ -36,3 +36,11 @@ Aug. 11, 2020
 The things anybody likes to see in a string — or at least those I like to see —  are that they "fit" the guitar, have good intonation, and feel and sound good.
 
 The Augustine Classic/Gold set checked all of these boxes. My 1962 Goya's aging tuners stopped sticking when I went from high-tension D'Addario to normal-tension Augustine strings.
+
+I thought the Gold basses might be a little more "mellow" sounding, which for me means less-pronounced higher partials in the notes. I didn't do an A/B comparison with the Augustine silver basses, but these strings met my expectations in that regard. Looking at the string thicknesses on the back of the packages, the basses in the Gold set are slightly thicker than those in the Red set. Since then, I've stuck with the same trebles but changed the basses from the Gold to the Red.
+
+I am very happy with the trebles. They are smooth, intonation is excellent, and they have lasted a long time. They sound great, and the tension matches what this particular guitar "wants" from a string.
+
+The basses (both the Gold and Red) are also well-suited to the guitar. The intonation is excellent, and they sound well-balanced. Right now I'm using my right-hand thumb without a nail, and the sound is more mellow than with the nail. I was having a lot of technique issues, and that led me to trim the thumbnail. When I play the basses with my i and m fingers (with nails), it can get a little raspy due to the string windings, but that would happen with just about any strings. I'm aiming to improve this with practice.
+
+Since my guitar's scale length is 630 mm, which is 20 mm smaller than the standard 650 mm, I am surprised that there's not a whole lot of "extra" string. I don't think I trimmed anything. I can't remember the exact period when Ramirez was making guitars with a 660-664 mm scale (maybe the 1960s-80s?), but those would have even more potential problems. For my guitar, anyway, I didn't need *more* string, but I didn't need to trim them very much either. I'm pretty sure an extra 20 mm wouldn't make it so you couldn't use these strings, but they could make them just *a bit* longer to make it easier to put the strings on the guitar.
