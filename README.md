@@ -7,13 +7,13 @@ Impressions and reviews of strings for the classical guitar.
 
 I've been playing the guitar for a long time. Since I was very young. I guess you can say I've come full circle, since I now play the same classical guitar I started out with at age 7 or so.
 
-That means all strings I play and review are installed (tied?) on a 1962-ish Goya G-10 classical guitar that's roughly 7/8-size with a 630 mm scale. The traditional classical scale is 650 mm. A difference of 20 mm isn't that much. It's about the same as going from a Fender scale (25.5 inches) to Gibson (24.75 inches). The same string tuned to the same pitch will have less tension at 630 mm than it does at 650 mm. The temptation is to use heavier strings on the slightly-smaller guitar to increase the string tension, which should quicken the response and increase the volume. It's also harder on the instrument.
+That means all strings I play and review are installed (tied?) on a 1962-ish Goya G-10 classical guitar that's roughly 7/8-size with a 630 mm scale. The traditional classical scale is 650 mm. A difference of 20 mm isn't that much. It's about the same as going from a Fender scale (25.5 inches) to Gibson (24.75 inches). The same string tuned to the same pitch will have less tension at 630 mm than it does at 650 mm. The temptation is to use heavier strings on the slightly-smaller guitar to increase the string tension, which should quicken the response and increase the volume. It's also harder on the instrument. But with the scale length getting shorter and the strings getting thicker, the law of diminishing returns factors in.
 
 I picked up the classical guitar about six or so months ago after a long layoff. I used D'Addario Pro Arté EJ46 High Tension strings for years and years before that. I had a set of D'Aquisto High Tension classical strings lying around, and I put those on the Goya.
 
 The difference between playing the classical guitar (or doing anything, really) now and 20+ years ago is the internet. Information of any kind, in any quantity was harder to come by. I started out in the 1980s using Augustine Black strings because that was what was out front at the music store. I can't remember when or why I switched to D'Addario, but once I started using them, that was it. I didn't change strings very often. Nylon trebles last a long time. It's the wound bass strings that wear out, deaden and waver in pitch.
 
-When I began playing the classical guitar again last yea (2019), there was so much information. The Delcamp forum. The Strings by Mail and Just Strings web sites. The string-makers' web sites. Magazines, blogs, instructional sites. There is a lot of information out there.
+When I began playing the classical guitar again last year (2019), there was so much more information than when I was in the thick of learning technique and repertore. The Delcamp forum. The Strings by Mail and Just Strings web sites. The string-makers' web sites. Magazines, blogs, instructional sites. There is a lot of information out there.
 
 But it all comes down to what you as a player and your guitar as an instrument (or hunk of wood) "likes."
 
