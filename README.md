@@ -3,7 +3,7 @@
 Impressions and reviews of strings for the classical guitar.
 
 **By Steven Rosenberg**
-<br/>*classical_guitar@passthejoe.net*
+<br/><a href="mailto:classical_guitar@passthejoe.net">*classical_guitar@passthejoe.net*</a>
 
 I've been playing the guitar for a long time. Since I was very young. I guess you can say I've come full circle, since I now play the same classical guitar I started out with at age 7 or so.
 
