@@ -56,3 +56,7 @@ Since my guitar's scale length is 630 mm, which is 20 mm smaller than the standa
 The strings I was using just before these Augustines were an old pack of D'Aquisto hard-tension nylons that I bought many years ago. Hard-tension strings are certainly louder, but they are harder to play than the Augustine mediums. As I say above, I think some guitars respond better to hard-tension strings, but my 630 mm scale Goya isn't one of them. I think it's easier to get different dynamics (i.e. sound levels) from these medium-tension strings.
 
 I have some other sets to try out. I haven't used D'Addario Pro Arté strings in a long time — and probably never used D'Addario medium tension. I also want to try some of those funky Aquila Nylgut strings. Still, I could see using these Augustine strings on a regular basis.
+
+**Update on Dec. 6, 2020:** The Augustine Red set is still going strong. I still am using the treble strings from the Gold set. The Red basses are still holding their intonation, and they sound appreciably bright. They don't look worn.
+
+I cut off my right-hand nails and am working on my no-nails technique for classical guitar with these strings. Using the sound of Emilio Pujol on the few recordings I have access to, the attack seems much harder, yet more precise. 
