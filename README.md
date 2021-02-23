@@ -59,4 +59,6 @@ I have some other sets to try out. I haven't used D'Addario Pro Arté strings in
 
 **Update on Dec. 6, 2020:** The Augustine Red set is still going strong. I still am using the treble strings from the Gold set. The Red basses are still holding their intonation, and they sound appreciably bright. They don't look worn.
 
-I cut off my right-hand nails and am working on my no-nails technique for classical guitar with these strings. Using the sound of Emilio Pujol on the few recordings I have access to, the attack seems much harder, yet more precise. 
+I cut off my right-hand nails and am working on my no-nails technique for classical guitar with these strings. Using the sound of Emilio Pujol on the few recordings I have access to, the attack seems much harder, yet more precise.
+
+**Update on Feb. 22, 2020:** I grew and subsequently cut my nails again. The bare-fingers technique *can* be much harder than the nails technique. According to some players, you really need to *move* the strings — in the literal sense — to get the right tone and volume. I have been playing less classical and more steel-string lately, so it's not much of an issue. I did pick up the classical a few times in the past couple of weeks, and the strings sound pretty good. The initial brightness is pretty much gone, but the strings sound OK, don't look worn, and intonate well. The trebles are great, and I probably don't have to change them if I don't want to.
