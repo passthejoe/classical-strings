@@ -35,6 +35,10 @@ I want to try:
 * Aquila Ambra
 * D'Addario Pro Arté EJ30 Normal Tension Rectified Nylon
 
+June 30, 2022
+
+I wasn't very impressed with the D'Addario Pro Arté EJ45 or Ernie Ball 2403 Ernesto Palla strings. As always, the trebles were fine, but the basses didn't have the crispness I'm used to.
+
 Sept. 6, 2020
 
 ## Augustine Classic/Gold and Classic/Red — Medium Tension
