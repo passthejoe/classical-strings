@@ -23,8 +23,8 @@ After a Strings by Mail order, I have a lot of strings, but I'm still not changi
 
 I have:
 
-* Augustine Classic/Gold (tried)
-* Augustine Classic/Red (trying)
+* Augustine Classic/Gold
+* Augustine Classic/Red
 * D'Addario Pro Arté EJ45 Normal Tension
 * Strings by Mail Classical Guitar Strings Medium Tension Tie End
 * Ernie Ball 2403 Ernesto Palla Clear & Silver Nylon Strings
@@ -35,9 +35,29 @@ I want to try:
 * Aquila Ambra
 * D'Addario Pro Arté EJ30 Normal Tension Rectified Nylon
 
+Oct. 23, 2026
+
+Long time, no check-in. 
+
+## Ernie Ball 2403 Ernesto Palla Clear & Silver Nylon Strings
+
+Ernie Ball isn't known for classical/nylon strings. About all I can say about this set is that it's inexpensive. The basses didn't deliver the crispness of the Augustine strings. I have nothing to say about the trebles. They didn't make an impression on me. If you're not particular and want a cheap set of strings, these will do.
+
+## Aquila Alabastro
+
+I did get a set of these strings. They're supposed to have a synthetic nylon that emulates gut strings. I don't have any experience with actual gut strings beyond hearing them on old recordings and seeing them on double basses at my high school back in the day.
+
+For me and on my guitar, there was nothing special about these strings. I found them a little "muffled" in sound — a little weak. I want to try them again — either this set or another from Aquila — to see if I'm missing something. But this set really left no impression on me. I guess for my situation, it's hard to beat Augustine, and I only use the lower-grade strings from them, so I bet the "better" Augustines could outperform what I consider my "reference string."
+
+## Strings by Mail Classical Guitar Strings Medium Tension Tie End
+
+Did I even use these? I have no recollection. I might have to order a few sets and see what I think.
+
 June 30, 2022
 
-I wasn't very impressed with the D'Addario Pro Arté EJ45 or Ernie Ball 2403 Ernesto Palla strings. As always, the trebles were fine, but the basses didn't have the crispness I'm used to.
+## D'Addario Pro Arté EJ45 Normal Tension
+
+I wasn't very impressed with the D'Addario Pro Arté EJ45. The trebles were fine, but the basses didn't have the crispness I'm used to. I used to play D'Addario Pro Arté Hard Tension, and I thought those were very nice strings, and it's hard to beat D'Addario for consistency and quality. But this normal tension set lacked the volume and character I expect from new basses. Since I get better results from the Augustine basses, it's not the tension.
 
 Sept. 6, 2020
 
