@@ -41,6 +41,8 @@ Long time, no check-in. Still playing without nails.
 
 You know that crips, bell-like sound that you get with new wound basses on a classical guitar? Well not every string set delivers that. That sound doesn't last forever, but it's nice to have for a week or three. You don't want a weak string out of the package. That's why I'm sticking with Augustine for now. I was very surprised that D'Addario did not measure up. I always thought of D'Addario Pro Arté as the string to beat. It didn't work out that way.
 
+I'm playing D'Addario Chromes on my Gibson ES-175, and those strings are excellent when it comes to sound, feel and consistency. But that's a whole different kind of guitar. I might have to get some more Pro Artés in different "formulas" and see if any of them are better.
+
 ## Ernie Ball 2403 Ernesto Palla Clear & Silver Nylon Strings
 
 Ernie Ball isn't known for classical/nylon strings. About all I can say about this set is that it's inexpensive. The basses didn't deliver the crispness of the Augustine strings. I have nothing to say about the trebles. They didn't make an impression on me. If you're not particular and want a cheap set of strings, these will do.
