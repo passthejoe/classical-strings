@@ -37,7 +37,9 @@ I want to try:
 
 Oct. 23, 2026
 
-Long time, no check-in. 
+Long time, no check-in. Still playing without nails.
+
+You know that crips, bell-like sound that you get with new wound basses on a classical guitar? Well not every string set delivers that. That sound doesn't last forever, but it's nice to have for a week or three. You don't want a weak string out of the package. That's why I'm sticking with Augustine for now. I was very surprised that D'Addario did not measure up. I always thought of D'Addario Pro Arté as the string to beat. It didn't work out that way.
 
 ## Ernie Ball 2403 Ernesto Palla Clear & Silver Nylon Strings
 
